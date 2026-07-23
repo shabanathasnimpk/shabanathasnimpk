@@ -49,7 +49,9 @@ Here are some of the projects I'm working on:
 ## Connect with Me
 
 - GitHub: https://github.com/shabanathasnimpk
-- LinkedIn: https://linkedin.com/in/
+- LinkedIn: https:/www.linkedin.com/in/shabana-thasnim-pk
+
+
 
 ---
 
